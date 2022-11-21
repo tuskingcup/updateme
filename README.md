@@ -1,5 +1,3 @@
 # updateme
 
-- Plai
-  - KMUTNB
-  - Year 2
+- Benz test
