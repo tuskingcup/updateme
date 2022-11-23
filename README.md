@@ -7,3 +7,5 @@
 - Kavin
 - Toey kub 6/4
 - Tan
+- nwtkd hiw pizza
+- God :)
